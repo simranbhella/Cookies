@@ -1,1 +1,1 @@
-# Cookies
+This is a simple recipe to make chocolate chip cookies that you can follow! Look at the ingredients to see what you need and then put it together using the instructions. 

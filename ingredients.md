@@ -1,0 +1,11 @@
+Ingredients needed to make Chocolate Chip Cookies:
+- 3 cups all purpose flower
+- 1 cup white sugar
+- 1 cup brown sugar
+- 1 cup softened butter
+- 2 eggs(can use half a cup of yogurt in place of 2 eggs as well)
+- 2 teaspoons vanilla extract
+- 1 teaspoon baking soda
+- 2 teaspoons hot water
+- 1/2 teaspoon salt
+- 2 cups chocolate chips
